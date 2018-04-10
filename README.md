@@ -4,6 +4,6 @@ g s
 so say thanks
 
 
-or not
+or not,
 but you should
 
